@@ -2,9 +2,9 @@
                            Pregão na Bolsa de Valores 
 Grupo:
 
-Anna Carolina Silva Araujo     SP3090647
+Anna Carolina Silva Araujo     SP3090647   231-A
 
-Janiely Silva Vieira           SP3089631
+Janiely Silva Vieira           SP3089631   231-A
 
 
 
